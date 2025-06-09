@@ -1,1 +1,1 @@
-![GIF](https://camo.githubusercontent.com/ad38c424479dba43b6ded15fecfde6b53cf9fcd6ff3dc7715d5bcb43f8bbefb8/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f5)
+![GIF](https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif)
